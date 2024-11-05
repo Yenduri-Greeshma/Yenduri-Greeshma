@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Yenduri-Greeshma
-- 👀 I’m interested in Coding and Designing
-- 🌱 I’m currently learning AWS.
+- 👀 I’m interested in Coding.
+- 🌱 I’m very much enthusiast in Designing.
 - 📫 How to reach me greeshmayenduri@gmail.com
 - 😄 Pronouns: She/Her
